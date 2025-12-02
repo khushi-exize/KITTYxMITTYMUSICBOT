@@ -1,9 +1,9 @@
 <img src="https://user-images.githubusercontent.com/73097560/115834477-dbab4500-a447-11eb-908a-139a6edaec5c.gif">
 <p align="center">
-𝐁 𝐀 𝐃 𝐍 𝐀 𝐌 
+𝐊𝐈𝐓𝐓𝐘
 <img src="https://user-images.githubusercontent.com/73097560/115834477-dbab4500-a447-11eb-908a-139a6edaec5c.gif">
 <p align="center">
-𝗧𝗘𝗔𝗠 𝗞𝗥𝗜𝗧𝗜 𝗕𝗢𝗧𝗦
+𝐊𝐈𝐓𝐓𝐘
 <img src="https://user-images.githubusercontent.com/73097560/115834477-dbab4500-a447-11eb-908a-139a6edaec5c.gif">
 
     ─「 ᴅᴇᴩʟᴏʏ ᴏɴ ʜᴇʀᴏᴋᴜ 」─
